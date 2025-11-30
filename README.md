@@ -1,1 +1,0 @@
-# Orhantahirozata.-github.-io
